@@ -10,3 +10,9 @@ At this present hour, no grand marvel awaiteth thee save for mine modest oration
 
 <br>
 
+
+If u just came here looking for the flag well then here you go 😭😭:  
+https://shorturl.at/bjYTx  
+
+...but i hope u know morse code atleast, best of luck otherwise.
+
